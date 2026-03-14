@@ -3,7 +3,7 @@
 ![](https://64.media.tumblr.com/22c03a820f1672e6b8af0e0022b7ad09/e9fab7f530453fce-12/s2048x3072/293b23980ff679b4d3f06b5ce4c7231a03fb6332.pnj)
 
 </div>
-<h5 align="center"> i use this for ponytown, if there's more u want to know, pls look at my rentry linked!!!!</h5>
+<h5 align="center"> i use this for ponytown, if there's more u want to know, pls look at my rentry or strawpage linked!!!!</h5>
 
 <h3 align="center">hello!!!!!!! my name is mimi or qrow or whoever i am on ponytown!! they/them but it does not really matter to me :)</h3>
 
