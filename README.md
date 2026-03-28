@@ -14,4 +14,6 @@
 
   <h6 align="center"> ୨୧ i fear my name IS literal, so i might need extra clarification because i am socially inept and dont understand many cues.</h4>
 
-  <h3 align="center"> PLS HANG OUT WITH ME IF U WANT!!!! I DONT MIND AT ALL!!!!! thank u for reading ദ്ദി( • ᴗ < )</h3>
+  <h6 align="center"> ୨୧ PLS HANG OUT WITH ME!!!! I WANT TO MAKE MORE FRIENDS I AM JUST SHY!!!!!!
+
+  <h3 align="center">  thank u for reading ദ്ദി( • ᴗ < )</h3>
